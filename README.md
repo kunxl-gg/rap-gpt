@@ -1,2 +1,2 @@
 # rap-gpt
-Dhaasu? Its worth the try
+Dhaasu? It's worth the try
